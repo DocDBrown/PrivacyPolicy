@@ -2,7 +2,7 @@ Did an Australian Special Air Service Squad associated with St Pauls college Uni
 
 You bet they did!!!
 
-But isn't it a job requiremnt for them to know the Geneva convetion?
+But isn't it a job requirement for them to know the Geneva convention?
 
 Maybe someone should ask Dr Alex Nicholls and his mates
 
