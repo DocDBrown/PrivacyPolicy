@@ -4,4 +4,6 @@ You bet they did!!!
 
 Maybe someone should ask Dr Alex Nicholls and his mates
 
+Its going to be hot where they go when they die.
+
 oops i told the truth
