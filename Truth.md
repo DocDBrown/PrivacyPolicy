@@ -9,3 +9,5 @@ Maybe someone should ask Dr Alex Nicholls and his mates
 Its going to be hot where they go when they die.
 
 oops i told the truth
+
+Don't worry, they are above every law on the planet!
