@@ -10,4 +10,4 @@ Maybe someone should ask Dr Alex Nicholls and his mates "Do you want to own up t
 
 Its going to be hot where they go when they die.
 
-Quick you had better come after me to cover up your crimes...
+... and that is the reason my wife has developed severe PTSD
