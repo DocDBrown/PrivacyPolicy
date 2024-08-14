@@ -10,4 +10,4 @@ Its going to be hot where they go when they die.
 
 ... and that is the reason my wife, who has a third degree blackbelt and psychology degree, has developed severe PTSD. I think its only fair that if they go overseas to non five-eyes countries, the Geneva convention shouldn't apply to them and their families.
 
-Obviously I really don't like bullies... They still think that after criminal human rights abuse, hate crimes, stand over tactics, death threats, Nazi blood-libel, torture and failed excution attempts, that I give a shit about anything they try to do to me
+Obviously I really don't like bullies... 
