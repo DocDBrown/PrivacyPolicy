@@ -1,5 +1,3 @@
-Today's Random Fact: 
-
 Did an Australian Special Air Service Squad associated with St Pauls college University of Sydney breach Geneva Convention IV article 27
 
 You bet they did!!!
@@ -10,4 +8,4 @@ Maybe someone should ask Dr Alex Nicholls and his mates "Do you want to own up t
 
 Its going to be hot where they go when they die.
 
-... and that is the reason my wife has developed severe PTSD, so I really don't like bullies.
+... and that is the reason my wife, who has a third degree blackbelt and psychology degree, has developed severe PTSD. I think its only fair that if they go overseas to non five-eyes countries, the Geneva convention shouldn't apply to them and their families.
