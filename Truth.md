@@ -9,3 +9,5 @@ Maybe someone should ask Dr Alex Nicholls and his mates "Do you want to own up t
 Its going to be hot where they go when they die.
 
 ... and that is the reason my wife, who has a third degree blackbelt and psychology degree, has developed severe PTSD. I think its only fair that if they go overseas to non five-eyes countries, the Geneva convention shouldn't apply to them and their families.
+
+Obviously I really don't like bullies...
