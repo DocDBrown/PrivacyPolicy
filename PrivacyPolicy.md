@@ -10,5 +10,5 @@ Changes to This Privacy Policy We may update this Privacy Policy from time to ti
 
 Contact Us For any questions or concerns regarding this privacy policy, please contact us at:
 
-Email: db8716@gmail.com Phone: 0434502381 Address: PO BOX 4573 North Rock, NSW, 2154, Australia
+Email: db8716@gmail.com Address: PO BOX 4573 North Rock, NSW, 2154, Australia
 
