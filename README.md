@@ -1,1 +1,1 @@
-My own personal political views remain firmly in the Atlassian camp.
+Privacy and support policies for iOS apps
