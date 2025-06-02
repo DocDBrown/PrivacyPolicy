@@ -8,4 +8,4 @@ One thing everyone can agree on - "WITH NO HONOR THEY SERVE"
 
 Even the Queensland Police motto proves this isnt the first time their lack of honour has been called out
 
-Even if you get a successful political prosecution, you still have to answer the National Anti-Corruption Commission and International Criminal Court
+Even if you get a successful political prosecution on the victim and witness of violent drug crime, you still have to answer the National Anti-Corruption Commission and International Criminal Court
