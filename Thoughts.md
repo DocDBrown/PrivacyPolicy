@@ -6,6 +6,6 @@ In Australia when a person accuses a woman of coercive control (as per police bo
 
 One thing everyone can agree on - "WITH NO HONOR THEY SERVE"
 
-Even the Queensland Police motto proves this isnt the first time their lack of honour ahs been called out
+Even the Queensland Police motto proves this isnt the first time their lack of honour has been called out
 
 Even if you get a successful political prosecution, you still have to answer the National Anti-Corruption Commission and International Criminal Court
