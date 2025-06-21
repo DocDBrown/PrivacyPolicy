@@ -12,4 +12,4 @@ Checklist before organizing pre-meditated murder with Townsville police command:
 
 6 - Will people notice these red-necks have contempt for the Rome Statue of the International Criminal Court?
 
-7 - Will criminal defamation, criminal harassemnt and hate crimes by police officers be enough to cover up for you?
+7 - Will criminal defamation, criminal harassment and hate crimes by police officers be enough to cover up for you?
