@@ -2,7 +2,7 @@ Checklist before organizing pre-meditated murder with Townsville police command:
 
 1 - Is the victim proficient in filipino martial arts?
 
-2 - If you have 25 years of martial arts training, does the victim cross train in Marine Corps Marital Arts (you might be taken away on a amambulance stretcher)?
+2 - If you have 25 years of martial arts training, does the victim cross train in Marine Corps Marital Arts (you might be taken away on a ambulance stretcher)?
 
 3 - If we fail to execute him, can we still charge the victim for defending themselves (obiously yes)?
 
