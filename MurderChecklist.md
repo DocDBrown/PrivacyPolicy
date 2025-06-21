@@ -11,3 +11,5 @@ Checklist before organizing pre-meditated murder with Townsville police command:
 5 - If Queensland police fail to execute me on three occisions, will foreign militaries need to demonstrate correct execution techniques on you?
 
 6 - Will people notice these red-necks have contempt for the Rome Statue of the International Criminal Court?
+
+7 - Will criminal defamation, criminal harassemnt and hate crimes by police officers be enough to cover up for you?
